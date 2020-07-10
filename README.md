@@ -1,1 +1,0 @@
-# AndrewPrzytula.github.io
